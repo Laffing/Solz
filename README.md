@@ -1,0 +1,2 @@
+# Solz
+Chorus of Insanity
